@@ -1,1 +1,1 @@
-My first readme
+Follow my for Updates: This is how
